@@ -1,0 +1,1 @@
+# asrock_deskmini310_hackintosh
